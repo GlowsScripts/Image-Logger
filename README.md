@@ -5,4 +5,4 @@ Made by Glow Scripts
 
 
 
-**If you have isueses join our discord server and ask questions** <a href"www.google.com">lool <a/>
+**If you have isueses join our discord server and ask questions** <a href"www.google.com">lool</a>
