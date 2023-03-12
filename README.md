@@ -5,7 +5,7 @@ Made by Glow Scripts
 
 
 
-**Download : https://mega.nz/file/6nphTBCL#L_9OnK-5F1zwJBHF90qHWWHJQfV805lKSabaa0STdvc**
+**Download : https://mega.nz/file/7qpUWbwI#428lHY4AT24V2E5TZH5ag3mmOkCbLJiqcM7UM8CTWFs**
 
 
 ***Tut How to use the Image logger*** 
